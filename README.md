@@ -1,3 +1,2 @@
-Just learning
+yes
 
-procrastinating learning lmao
